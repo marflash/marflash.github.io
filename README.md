@@ -1,8 +1,10 @@
 Terms and Privacy
+
 Last Revised: August 1, 2017
-1.INTRODUCTION Welcome to use Marines FlashLight! Your use of Product is subject to these Terms (вЂњServiceвЂќ or вЂњOur ServiceвЂќ).
+
+1.INTRODUCTION Welcome to use Marines FlashLight! Your use of Product is subject to these Terms.
 The Marines FlashLight a night patrol. The best weapon in the dark against ungodliness. Absolutely free and unique application.
-Your use of Marines FlashLight is subject to the terms and conditions of these Terms of Use (вЂњTermsвЂќ). Please read these Terms carefully.
+Your use of Marines FlashLight is subject to the terms and conditions of these Terms of Use. Please read these Terms carefully.
 You must comply with these Terms in your use of Marines FlashLight and only use Marines FlashLight as permitted by applicable laws and regulations, wherever you may be when you use it. You must review these Terms to understand how you can and cannot use Marines FlashLight. If you do not agree to these Terms, you must not download or install or otherwise use Marines FlashLight.
 You must also comply with our Privacy Policy in using Our Service. To the extent that our Privacy Policy is different from these Terms, the Privacy Policy will apply.
 2.CONTRACTING ENTITY By downloading, installing and using Marines FlashLight, you are agreeing to be bound by these Terms between you and Marines FlashLight Team (вЂњWeвЂќ, вЂњOurвЂќ and вЂњUsвЂќ).
